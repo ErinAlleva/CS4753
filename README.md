@@ -5,6 +5,8 @@ What we offer students differs in that we give them a way to get trustworthy hel
 
 This service lowers the amount of time spent on simple tasks so you can spend more time on creative projects, homework, studying, and more. It also serves as an easy way to connect students to other students with more specific skills. It is also an easy way to make money in a familiar environment for students that wish to offer services.
 
+At Union we're all about allowing students  
+
 
 
   
